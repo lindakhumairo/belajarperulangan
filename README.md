@@ -1,1 +1,5 @@
-# belajarperulangan
+# belajarperulangan![Screenshot (13)](https://github.com/lindakhumairo/belajarperulangan/assets/145305137/3fb57ef2-1423-425f-950c-38196c4a29eb)
+![Screenshot (14)](https://github.com/lindakhumairo/belajarperulangan/assets/145305137/96eb3bf2-789b-445a-8636-4bab1ea7d3d2)
+![Screenshot (15)](https://github.com/lindakhumairo/belajarperulangan/assets/145305137/0f7d3487-12f6-4f40-a983-fe7d6ba6879a)
+![Screenshot (16)](https://github.com/lindakhumairo/belajarperulangan/assets/145305137/e9cf44e1-bfca-4b71-8073-3b8095232170)
+![Screenshot (17)](https://github.com/lindakhumairo/belajarperulangan/assets/145305137/98bf7671-3d05-4363-938f-0ef24f9b3577)
